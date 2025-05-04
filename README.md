@@ -3,4 +3,4 @@
 ### About Me
 - 🖊️ Pen-Tester
 - 🧑🏻‍💻 Coder
-- 🤔 and...T-EMBED ENJOYER!!!!
+- 🤔 and a Bruce enjoyer!
